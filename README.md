@@ -1,3 +1,4 @@
 # DesignSkills
 
-![And_Sty_GeneralDesignSkills5](https://user-images.githubusercontent.com/113012114/197782359-fd2b678d-3bbf-498f-9753-8c6f4e0273d1.png)
+
+![And_Sty_GeneralDesignSkills6](https://user-images.githubusercontent.com/113012114/197793163-3ec7fff7-0fe5-4e9d-9d6e-aa54f61f8ca2.png)
